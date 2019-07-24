@@ -1,1 +1,1 @@
-# https-absorbingg.blogspot.com-
+# https-absorbingg.blogspot.com
